@@ -9,10 +9,10 @@
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ### 🤔 About
--  **Learning :** Machine learning :zap:
+-  **Learning :** Machine learning/ AI :zap:
 -  **Hobbies :** Arm wrestling 💪 | Soccer :soccer: | Coding 👨‍💻 | Self Improvement :arrow_upper_right:
 -  **Ask me about :** Anything! I'm happy to help :v:
--  **Fun fact :** I come from Mauritius Island, you can see me floating on water in the snapchat map if I'm there :mauritius:
+-  **Fun fact :** I come from Mauritius Island, you can see me floating on snapchat if I'm there :mauritius:
 -  **Pronouns :** Nigel > * pronouns :smirk:
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
