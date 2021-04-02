@@ -13,7 +13,7 @@
 -  **Hobbies :** Pro Arm wrestling 💪 | Soccer :soccer: | Coding 👨‍💻 | Self Improvement :arrow_upper_right:
 -  **Ask me about :** Anything! I'm happy to help :v:
 -  **Fun fact :** I come from Mauritius Island, you can see me floating on snapchat if I'm there :mauritius:
--  **Pronouns :** He/ him
+-  **Pronouns :** He/ him 👨
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
