@@ -7,7 +7,7 @@ I'm a Software Engineer passionate about building scalable, elegant and impactfu
 ## 🧐 About
 -  **Learning :** System Design, AWS, Cool Tech :zap:
 -  **Hobbies :** Arm wrestling 💪
--  **Experience** : CTO @ <a href="pikapoint.io">PikaPoint</a>, SWE Intern @ <a href="https://www.morganstanley.com/">Morgan Stanley</a> (2x), <a href="https://bombardier.com/en">Bombardier Aviation</a> and <a href="https://www.cybernaptics.mu/">CyberNaptics</a>
+-  **Experience** : CTO @ <a href="https://pikapoint.io">PikaPoint</a>, SWE Intern @ <a href="https://www.morganstanley.com/">Morgan Stanley</a> (2x), <a href="https://bombardier.com/en">Bombardier Aviation</a> and <a href="https://www.cybernaptics.mu/">CyberNaptics</a>
 
 <br>
 
